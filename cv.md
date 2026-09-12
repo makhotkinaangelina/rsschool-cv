@@ -3,8 +3,8 @@
 ## Contact Information
 
 * **Email:** [gеlyamakh@gmail.com](mailto:grlyamalh@gmail.com)
-* **GitHub:** https://github.com/makhotkinaangelina
-* **Telegram:** https://t.me/makhotkinaangelina
+- **GitHub:** [makhotkinaangelina](https://github.com/makhotkinaangelina)
+- **Telegram:** [@makhotkinaangelina](https://t.me/makhotkinaangelina)
 * **Discord:** makhotkinaangelina
 
 ## About Me
