@@ -2,10 +2,10 @@
 
 ## Contact Information
 
-* **Email:** [gеlyamakh@gmail.com](mailto:grlyamalh@gmail.com)
+- **Email:** [grlyamalh@gmail.com](mailto:gelyamakh@gmail.com)
 - **GitHub:** [makhotkinaangelina](https://github.com/makhotkinaangelina)
 - **Telegram:** [@makhotkinaangelina](https://t.me/makhotkinaangelina)
-* **Discord:** makhotkinaangelina
+- **Discord:** makhotkinaangelina
 
 ## About Me
 
